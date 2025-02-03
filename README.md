@@ -7,3 +7,4 @@ Student network and system engineer @ howest
 
 Funky and funny (according to myself)
 
+https://www.linkedin.com/in/samroussel/
